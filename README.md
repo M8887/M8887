@@ -1,2 +1,2 @@
-- 👋 i am a deveops stundet
+- 👋 i am a deveops stundent
 - without any it background
